@@ -1,4 +1,4 @@
-Perfeito, Leonel! O teu texto está muito bom! Apenas corrigi alguns pequenos erros de escrita (como "Eu'sou'Angola" e a pontuação) e organizei de forma mais bonita para ficar profissional.
+
 
 Podes copiar o texto abaixo e colar aí no GitHub:
 
